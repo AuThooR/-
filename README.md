@@ -1,5 +1,4 @@
 ## Лисичкин Дмитрий Алексеевич
-![](https://static8.depositphotos.com/1207999/1027/i/600/depositphotos_10275820-stock-photo-business-man-suit-avatar.jpg)
 
 Мужчина, 22 года, родился 10 ноября 1999
 
