@@ -1,3 +1,4 @@
+![depositphotos_10275820-stock-photo-business-man-suit-avatar](https://user-images.githubusercontent.com/116101118/198302563-89c5063f-9778-43c9-82db-f3ae295b0666.jpg)
 ## Лисичкин Дмитрий Алексеевич
 ![](https://static8.depositphotos.com/1207999/1027/i/600/depositphotos_10275820-stock-photo-business-man-suit-avatar.jpg)
 Мужчина, 22 года, родился 10 ноября 1999
